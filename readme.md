@@ -1,2 +1,2 @@
 # Carbon Footprint Tracker
-Link to video: 
+Link to video: https://youtu.be/jnk7wHlAMLY
